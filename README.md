@@ -1,4 +1,5 @@
-![IMG_6983](https://github.com/user-attachments/assets/416ae9bd-176f-438e-8d4f-3c4e5720b0cf)
+<img width="750" height="183" alt="IMG_7214" src="https://github.com/user-attachments/assets/6d003342-d610-4786-9a75-59cfeb7e44dc" />
+
 
 
 
